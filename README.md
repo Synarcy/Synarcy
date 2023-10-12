@@ -1,0 +1,4 @@
+- Thanks for checking out my profile!
+- I'm currently learning python and will most likely not post much here.
+- If you're wanting to ask me a question then feel free!
+- If you're wanting me to create you a program then feel free to send me a message, i'll see what i can do!
